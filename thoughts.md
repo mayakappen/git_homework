@@ -4,3 +4,5 @@
 
 #Use google calendar religiously and block off time realistically
 #Reach out to instructors and peers on slack for help after exhausting other options
+
+#Shoutout to Anna for giving me super helpful calendar advice!! 
