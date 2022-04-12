@@ -7,6 +7,4 @@
 
 #Shoutout to Anna for giving me super helpful calendar advice!!
 
-#make sure to google info you aren't sure about
-
 #Shoutout to Anna's cat!
